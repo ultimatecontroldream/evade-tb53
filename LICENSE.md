@@ -1,4 +1,4 @@
-#  
+#  evade exclusive Scripts is the best evade Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
